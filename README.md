@@ -14,11 +14,11 @@ Now, here's the boy's infomation.
 >
 > * Sixly, he seldom sleeps well at night, so he often stays up late to do something new or interesting such as browsing Github or QQzone.
 >
-> * Finally, after reading this README.md, he seems a little strange.
+> * Finally, after reading this README.md, he seems a little strange. That's he.
 
 ---
 
-## To our surprise. He has a Hacpai, bilibili and Github account😃🙃
+## To our surprise. He has a Hacpai, a bilibili and a Github account😃🙃
 
 >Why not have a look on him?
 >
