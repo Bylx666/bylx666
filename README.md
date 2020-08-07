@@ -22,7 +22,7 @@ Now, here's the boy's infomation.
 
 >Why not have a look on him?
 >
->Well, tell you the truth, He isn't able to add a link in markdown, and he is too lazy to copy my account link here. So just search bylx666, and you may find me.
+>Well, tell you the truth, He isn't able to add a link in markdown, and he is too lazy to copy his account link here. So just search bylx666, and you may find him.
 
 ## Have a good day today😎😀🎉🎉
 
