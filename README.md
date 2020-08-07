@@ -15,7 +15,7 @@ He left something to make everyone learn more about him.
 
 * ### Second, he is an obsessive. This is all DUED TO HIMSELF. When he is worried about his school marks, he thinks if there is something wrong in himself. So he has started a war with his body.
 
-> * He worries about almost anything, especial what effects his state of mind. For example, when he is gotten into the depresstive time, he thinks he is having a bad time and it may impact on his studying, and he tries his best to move himself away from it. In fact, he put his mind on the "moving away", but not listening to the teacher.
+> * He worries about almost anything, especially what effects his state of mind. For example, when he is gotten into the depresstive time, he thinks he is having a bad time and it may impact on his studying, and he tries his best to move himself away from it. In fact, he put his mind on the "moving away", but not listening to the teacher.
 > * He always checks for anything. He also tries to do anything what is done by one of his hand for the second time by another hand. He often falls into worries about what he've thought, and what he've done, and always check if they are "right".
 
 ---
