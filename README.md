@@ -1,5 +1,5 @@
-# > 一个懒蛋
-# > A busy guy.
+> ## 一个懒蛋
+> ## A busy guy.
 
 
 ## ![head](https://cdn.jsdelivr.net/gh/Bylx666/pic/sansplay.jpg)
