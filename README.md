@@ -1,5 +1,5 @@
-# * 站在你面前的，是一位真正的懒货 8=8
-# * The boy in front of you, is a REAL lazy guy ：—）
+# > 一个懒蛋
+# > A busy guy.
 
 
 ## ![head](https://cdn.jsdelivr.net/gh/Bylx666/pic/sansplay.jpg)
