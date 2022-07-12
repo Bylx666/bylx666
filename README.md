@@ -1,3 +1,3 @@
 # Subkey
 
-This is subkey, normal and normal guy. Life saikou! Do not pay attention on me, so that you'll be thankful.
+~~~ヾ(＾∇＾)おはよー♪我是中国人哦，虽然偶尔用点日语，但我还是中国话说的多些。
